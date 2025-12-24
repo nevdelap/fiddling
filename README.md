@@ -1,28 +1,29 @@
+
 # fiddling
 
 ## A Poem About Your Momma
 
-Yo momma's so big, when she steps outside,
-The earth tilts slightly to the left,
-Her shadow's got its own tour guide,
-And satellites mistake her for atmospheric heft.
+Yo momma's so vast, when she strolls down the lane,
+Continents shuffle to give her some space,
+Her shadow hosts festivals when it starts to rain,
+And satellites orbit just to glimpse her face.
 
-Yo momma's so old, her memory foam mattress
-Has actual memories of the Civil War,
-She taught Moses how to part the Red Sea's vastness,
-And carbon dating gave up trying to keep score.
+Yo momma's so ancient, her memory foam bed
+Recites tales from the dawn of time,
+She gave Moses directions, enough said,
+And carbon dating quit—age is no longer a crime.
 
-Yo momma's so lazy, she hired someone else
-To breathe for her while she takes a nap,
-Her couch has developed its own gravitational stealth,
-And even her dreams take frequent coffee breaks, no cap.
+Yo momma's so lazy, she outsourced her yawns
+And pays rent to her favorite chair,
+Her couch has moons and its own set of dawns,
+Even her dreams call in sick from despair.
 
-Yo momma's so confused, she got lost in her thoughts
-And had to call for backup from Search and Rescue,
-GPS satellites threw their hands up and fought,
-Now Google Maps just shows a big question mark, it's true.
+Yo momma's so puzzled, she got lost in her mind
+And phoned Search & Rescue for clues,
+GPS satellites circled, hoping to find,
+But Google Maps just shrugs and refuses to choose.
 
-Yo momma's cooking is so astronomically bad,
-The fire department sends thank-you cards,
-Even the roaches packed their bags and fled,
-And Hell's Kitchen relocated to avoid the hazards.
+Yo momma's cooking is a cosmic event,
+The fire brigade sends her flowers each year,
+Even cockroaches left a farewell lament,
+And Hell's Kitchen moved to avoid coming near.
