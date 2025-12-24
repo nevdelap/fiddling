@@ -2,27 +2,27 @@
 
 ## A Poem About Your Momma
 
-In the warmth of morning light she stands,
-With gentle eyes and caring hands,
-A beacon through the darkest night,
-Guiding stars that shine so bright.
+Yo momma's so big when she wakes at dawn,
+The sun says "nope" and hits the snooze button,
+Her shadow's got its own zip code and lawn,
+And birds use her hairdo for a glide pattern.
 
-Her laughter echoes through the years,
-A melody that calms all fears,
-With wisdom deep and patience true,
-She paints the world in vibrant hue.
+Yo momma's so old her birth certificate,
+Says "expired" in three different languages,
+She knew the dinosaurs on a first-name basis, kid,
+And her yearbook's in hieroglyphic passages.
 
-Through every storm and sunny day,
-She finds the words we need to say,
-A strength that never seems to bend,
-A mother, teacher, and best friend.
+Yo momma's so lazy, I'm not gonna lie,
+She thought a two-piece suit was too much work,
+Her idea of a marathon's a long drawn sigh,
+And she makes sloths look like they berserk.
 
-Her love's a fire that never dies,
-A truth that needs no alibis,
-In every heart she's touched with grace,
-The world becomes a better place.
+Yo momma's so confused when she sees a door,
+She asks it where it wants to go today,
+GPS gave up tryna guide her anymore,
+And maps just fold themselves and run away.
 
-So here's to momma, strong and kind,
-The greatest treasure one could find,
-Forever grateful, through and through,
-For everything she helps us do.
+Yo momma's cooking is so nasty and mean,
+The smoke alarm cheers her on in delight,
+Gordon Ramsay took one bite and left the scene,
+And the garbage disposal filed for civil rights.
