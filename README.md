@@ -1,28 +1,29 @@
+
 # fiddling
 
 ## A Poem About Your Momma
 
-Yo momma's so big when she wakes at dawn,
-The sun says "nope" and hits the snooze button,
-Her shadow's got its own zip code and lawn,
-And birds use her hairdo for a glide pattern.
+Yo momma's so vast, when she strolls down the lane,
+Continents shuffle to give her some space,
+Her shadow hosts festivals when it starts to rain,
+And satellites orbit just to glimpse her face.
 
-Yo momma's so old her birth certificate,
-Says "expired" in three different languages,
-She knew the dinosaurs on a first-name basis, kid,
-And her yearbook's in hieroglyphic passages.
+Yo momma's so ancient, her memory foam bed
+Recites tales from the dawn of time,
+She gave Moses directions, enough said,
+And carbon dating quit—age is no longer a crime.
 
-Yo momma's so lazy, I'm not gonna lie,
-She thought a two-piece suit was too much work,
-Her idea of a marathon's a long drawn sigh,
-And she makes sloths look like they berserk.
+Yo momma's so lazy, she outsourced her yawns
+And pays rent to her favorite chair,
+Her couch has moons and its own set of dawns,
+Even her dreams call in sick from despair.
 
-Yo momma's so confused when she sees a door,
-She asks it where it wants to go today,
-GPS gave up tryna guide her anymore,
-And maps just fold themselves and run away.
+Yo momma's so puzzled, she got lost in her mind
+And phoned Search & Rescue for clues,
+GPS satellites circled, hoping to find,
+But Google Maps just shrugs and refuses to choose.
 
-Yo momma's cooking is so nasty and mean,
-The smoke alarm cheers her on in delight,
-Gordon Ramsay took one bite and left the scene,
-And the garbage disposal filed for civil rights.
+Yo momma's cooking is a cosmic event,
+The fire brigade sends her flowers each year,
+Even cockroaches left a farewell lament,
+And Hell's Kitchen moved to avoid coming near.
